@@ -1,6 +1,5 @@
 Check out my [website](https://adedhi.github.io/)!
-     
-### ✨ 
+      
 ###       ✨ 
 ###           ✨
 ###   ✨
